@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @spaceboom07
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning HTML and CSS
+- 📫 How to reach me spaceboom07@gmail.com
+- 😄 Pronouns: He/Him
+- 💼 I like my job to work with squashy-animals
